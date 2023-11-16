@@ -12,3 +12,4 @@ Isabella - Isas And The Bellas <3
 
 # Odlavir
 "Nada é tão ruim que não possa piorar". 🥲🥲
+Netão - Molduras boas não salvam quadros ruins. - 💻
