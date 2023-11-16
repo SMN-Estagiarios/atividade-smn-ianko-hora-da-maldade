@@ -7,3 +7,5 @@ Adriel Alexander de Sousa
 ## João Victor - “Essas laminas cortam até diamante. Então você errou pois não estou com nenhum diamante aqui.” - 🤡
 
 Isabella - Isas And The Bellas <3
+
+# Gustavo Targino -> Brownie recheado. :O
