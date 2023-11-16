@@ -12,4 +12,8 @@ Isabella - Isas And The Bellas <3
 
 # Odlavir
 "Nada é tão ruim que não possa piorar". 🥲🥲
+
+# OrcinoNeto
 Netão - Molduras boas não salvam quadros ruins. - 💻
+
+Olívio Freitas - "The death is not the end, but only a transition" Fatal Tragedy (Dream Theater). ☠️🦇⚰️
