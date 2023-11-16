@@ -17,7 +17,9 @@ Isabella - Isas And The Bellas <3
 Netão - Molduras boas não salvam quadros ruins. - 💻
 
 Olívio Freitas - "The death is not the end, but only a transition" Fatal Tragedy (Dream Theater). ☠️🦇⚰️
-Thays - vida que segue 👩‍💻
+
+# Thays
+vida que segue 👩‍💻
 
 # pedroavelino
 Pedro Pai de Orcino no FIFA 😴
