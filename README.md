@@ -8,4 +8,9 @@ Adriel Alexander de Sousa
 
 Isabella - Isas And The Bellas <3
 
+# Gustavo Targino -> Brownie recheado. :O
+
+# Odlavir
+"Nada é tão ruim que não possa piorar". 🥲🥲
+
 Olívio Freitas - "The death is not the end, but only a transition" Fatal Tragedy (Dream Theater). ☠️🦇⚰️
