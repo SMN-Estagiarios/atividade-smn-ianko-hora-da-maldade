@@ -9,3 +9,6 @@ Adriel Alexander de Sousa
 Isabella - Isas And The Bellas <3
 
 # Gustavo Targino -> Brownie recheado. :O
+
+# Odlavir
+"Nada é tão ruim que não possa piorar". 🥲🥲
