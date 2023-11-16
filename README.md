@@ -31,3 +31,4 @@ Qual efeito? borboleta? cascata? 🧻
 Tudo passa! 😎👌
 
 Capitão Damijones🐙 : O holandês navega como seu capitão comandos!
+André Victor: Mola da mizera. Adriel queima rosca. 🙂 
